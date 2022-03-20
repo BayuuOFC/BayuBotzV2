@@ -3,6 +3,12 @@
 
 • LANGSUNG TO THE POINT AJA JANGAN PA PE PA PE
 
+<p align="center">
+  <img src="https://telegra.ph/file/9ca354c35cd2e37a466f5.jpg" width="35%" style="margin-left: auto;margin-right: auto;display: block;">
+  
+</p>
+<h1 align="center">BayuBotzV2</h1>
+
 # WHATSAPP
 KALO ERROR PC GW AJA, KLIK DIBAWAH
 * [`BAYU OFC`](https://wa.me/6281285866502?text=Assalamualaikum)
