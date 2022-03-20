@@ -1,8 +1,3 @@
-# BAYUBOTZV2
-• KALO ERROR PC WA AJA BANG😎
-
-• LANGSUNG TO THE POINT AJA JANGAN PA PE PA PE
-
 <p align="center">
   <img src="https://telegra.ph/file/9ca354c35cd2e37a466f5.jpg" width="35%" style="margin-left: auto;margin-right: auto;display: block;">
   
